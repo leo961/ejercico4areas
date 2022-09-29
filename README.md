@@ -1,0 +1,2 @@
+# ejercico4areas
+ 
